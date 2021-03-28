@@ -1,1 +1,0 @@
-# ManimAnimations_R-Fyre
